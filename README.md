@@ -15,3 +15,4 @@ Facebook:
 - [Associazione Parenti delle Vittime della Strage di Ustica](https://www.facebook.com/associazioneparentiustica)
 - [Strage di Bologna e Ustica](https://www.facebook.com/profile.php?id=61579816724267)
 - [Ustica Per Noi. Ipotesi per una strage](https://www.facebook.com/UsticaPerNoi)
+- [Uscire dal Labirinto Ustica dalla A alla Z](https://www.facebook.com/profile.php?id=61572521341014)
